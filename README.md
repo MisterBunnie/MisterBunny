@@ -4,5 +4,5 @@
 - 🌳 I am constantly developing and learning new technologies and skills.
 - 🦉 How to reach me:
 - Linkedin: https://www.linkedin.com/in/mister-bunny-837178221/
-- Email: misterbbunny@gmail.com
+- Email: ivanov.bozhidar.b@gmail.com
 
